@@ -1,6 +1,8 @@
 
 Can you imagine Seed from these 9 Steries?
 
+
+
 Perfect Seed (Answer)
 ?（英語で３文字？抽象的？
 
